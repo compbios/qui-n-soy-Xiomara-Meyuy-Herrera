@@ -1,1 +1,2 @@
-
+Soy Xiomara Meyuy Herrera, tengo 27 años de edad,nací en la ciudad de Santa Cruz en Bolivia, soy Médico Cirujano de profesión,actualmente me encuentro cursando la maestria en Epidemiología Clinica en Colombia,me gusta trabajar en pro de la comunidad,me interesa
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.istockphoto.com%2Fes%2Ffotos%2Ffotos-de-bandera-bolivia%3Fpage%3D4&psig=AOvVaw22YjNdziXL0bR8P9KifaiG&ust=1738280680451000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCICL_t-OnIsDFQAAAAAdAAAAABAJ)
